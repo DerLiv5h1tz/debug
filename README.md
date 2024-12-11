@@ -1,2 +1,2 @@
-i upload everything for that not to kill me
+i upload everything for that visaul stadio not to kill me
 
